@@ -60,3 +60,6 @@ You can find more about me, my projects, and get in touch via the social links o
 <p align="center">
   <b>“When you win you get higher, when you loose you get wiser ”</b>
 </p>
+
+
+*btw I look like a sleep deprivated kid in my pfp, but I'm not 😀
